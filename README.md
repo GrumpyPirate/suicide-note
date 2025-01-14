@@ -2,7 +2,7 @@
 
 People like to say things like, "it'll get better", or "there's always hope things will improve". But the unfortunate reality is, that for a lot of people out there: no, that just isn't true.
 
-I'm a woman that is transgender. Since I started transitioning 3 years ago, on 5th Feb 2022, the world has demonstrated that it does not accept transgender people are valid or deserve to live.
+I'm a woman that is transgender. Since I started transitioning 3 years ago, the world has demonstrated that it does not accept transgender people are valid or deserve to live.
 
 Instead of investing in helping us, or fostering a compassionate culture of understanding and acceptance, governments are now outright removing our basic human rights, and removing access to life-saving healthcare that allows us to live genuine, happy lives.
 
