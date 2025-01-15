@@ -37,6 +37,8 @@ I would never have been able to form close friendships, as I could never trust t
 
 My best friend’s parents, people whom I once felt like I could trust, started seeing me as too shameful to invite to social gatherings with their other friends, for fear of being judged.
 
+All of this was on top of the crippling dysphoria I endured every single day. I hated my voice. I hated my height. I hated my masculine hands. I hated my body. 
+
 And so: I have had enough of this lonely, miserable, fearful existence. This lesser life, where I'd never be cisgender, I'd always have to take hormones, have surgeries, and still never be considered truly 'female' by anyone other than particularly sympathetic people.
 
 #### To the only few loved ones in my life
