@@ -4,7 +4,7 @@ People like to say things like, "it'll get better", or "there's always hope thin
 
 I'm a woman that is transgender. Since I started transitioning 3 years ago, the world has demonstrated that it does not accept transgender people are valid or deserve to live.
 
-Instead of investing in helping us, or fostering a compassionate culture of understanding and acceptance, governments are now outright removing our basic human rights, and removing access to life-saving healthcare that allows us to live genuine, happy lives.
+Instead of investing in helping us, or fostering a compassionate culture of understanding and acceptance, governments are now outright removing our basic human rights, and banning access to life-saving healthcare that allows us to live genuine, happy lives.
 
 This is trickling down into popular culture, too. Transphobia is becoming systemic in “women’s rights” and "parents' rights" groups, with them dismissing gender dysphoria as "insanity" under the disguise of “keeping people safe”, which no-one seems to want to challenge.
 
