@@ -17,7 +17,7 @@ And so ultimately, despite the euphoria of what was supposed to be a positive jo
 
 I was told to wait 7 years for initial access to the life-saving healthcare that would only *start* improve my sense of wellbeing. And even then, after being ‘fixed’, I would emerge the other side, still subjected to the same amount of discrimination from wider society.
 
-So, I was forced to pay privately to have access gender-affirming HRT, unsupported by my GP in doing so, because “they don’t have the expertise” - despite cisgender women being able to walk out of an appointment the same day with an Oestrogen patch prescription. Nor were they willing to work with one of the only few accessible private HRT prescribers, who additionally, were demonised by the GMC through prejudice.
+So, I was forced to pay privately to have access to gender-affirming HRT, unsupported by my GP in doing so, because “they don’t have the expertise” - despite cisgender women being able to walk out of an appointment the same day with an Oestrogen patch prescription. Nor were they willing to work with one of the only few accessible private HRT prescribers, who additionally, were demonised by the GMC through prejudice.
 
 After a few years of perserverance, I came to love the physicality given to me by transition - my female features through hormone therapy, growing out my newfound wavy hair (which I loved), finally actually taking care of my body... and for the first time in my life, I began to feel like what I physically saw in the mirror mapped up to what I was inside. It was euphoric, the most wonderful feeling. I began to truly love myself.
 
